@@ -41,7 +41,7 @@
 
 ## credits ❤️
 
-[Full Credit Hellbot]
+[Full Credit Helpsomeone]
 
 
 
